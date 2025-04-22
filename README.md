@@ -1,8 +1,7 @@
 - 👋 Olá, eu sou a @JULIANAR13
 - 👀 Estou interessada em aprender
 - 🌱 Atualmente estou aprendendo, isso é novo para mim...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ Estou a procura de colaborar com quem possa me ajudar nessa jornada  
 - 😄 Pronouns: SHE / HER
 - ⚡ Fun fact: Eu sou uma grande fã da Taylor Swift
 
