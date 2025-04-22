@@ -1,4 +1,4 @@
-- 👋 Olá, eu sou a @JULIANAR13
+- 👋 Olá, eu sou @JULIANAR13
 - 👀 Estou interessada em aprender
 - 🌱 Atualmente estou aprendendo, isso é novo para mim...
 - 💞️ Estou a procura de colaborar com quem possa me ajudar nessa jornada  
