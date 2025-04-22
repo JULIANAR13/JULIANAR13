@@ -2,7 +2,7 @@
 - 👀 Estou interessada em aprender
 - 🌱 Atualmente estou aprendendo, isso é novo para mim...
 - 💞️ Estou a procura de colaborar com quem possa me ajudar nessa jornada  
-- 😄 Pronouns: SHE / HER
+- 😄 Pronouns: ELA  / DELA 
 - ⚡ Fun fact: Eu sou uma grande fã da Taylor Swift
 
 <!---
